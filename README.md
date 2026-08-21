@@ -12,6 +12,8 @@ The **astrologer consultation fees in Guwahati** generally depend on the type of
 
 For people looking for a professional and structured consultation, Tarot With Himu currently offers different consultation options.
 
+####WhatsApp: 6901529861
+
 ### Astrology Consultation Packages
 
 **Basic Astrology Consultation – ₹1,199**
